@@ -8,5 +8,5 @@
 
 💼 1.8 years experience · 10K+ users served · 99.5% uptime · 45% search accuracy improvement
 
-🔗 Portfolio: https://MANIKANTA131149.github.io
+🔗 Portfolio:[ https://MANIKANTA131149.github](https://github.com/MANIKANTA131149)
 📧 gantamanikanta678@gmail.com
